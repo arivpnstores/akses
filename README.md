@@ -1,1 +1,1 @@
-# akses
+# akses SC-MYRID-MOD
